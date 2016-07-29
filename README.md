@@ -1,0 +1,2 @@
+# Oqshom-Oshxonasi
+Fergana-Oqshomi
